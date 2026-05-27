@@ -27,14 +27,14 @@
  <ins>socials.</ins><br/>
 <div align="center">  
   
-### [Carrd](https://thecatlitterbox.carrd.co/)<br/>
+### [Carrd](https://glassedrosesinmelancholy.carrd.co/)<br/>
 <br/>
 <div align="center">  
   <img src="https://64.media.tumblr.com/31f4fbba2f0c4bf0bf7b41a58601b558/6d08fe58ff2c7311-23/s250x400/9707f58ebdf591b4bf645579dd901e342417f010.pnj" width="70">
 
 <div align="center"> 
 
-### [Rentry](https://rentry.co/thecatlitterboxcollective)<br/>
+### [Rentry](https://rentry.co/glassedrosesinmelancholy)<br/>
 <br/>
 <p align="center">
   <img src="https://64.media.tumblr.com/a8330fd50ccf800ec52cf3ea28c73958/6d08fe58ff2c7311-e1/s250x400/8953a1410482b75ee05fd896e0cc739a89dddddd.pnj" width="70">
@@ -42,8 +42,8 @@
 
 <div align="center"> 
   
-### [Strawpage](https://thecatlitterbox.straw.page)<br/>
-### [Atabook](https://thecatlitterbox.atabook.org/)<br/>
+### [Strawpage](https://glassedrosesinmelancholy.straw.page)<br/>
+### [Atabook](https://glassedrosesinmelancholy.atabook.org/)<br/>
 (draw and sign ata, pls.)
 
 <p align="center">
