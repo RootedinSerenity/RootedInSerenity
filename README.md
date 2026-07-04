@@ -27,7 +27,7 @@
  <ins>socials.</ins><br/>
 <div align="center">  
   
-### [Carrd](https://glassedrosesinmelancholy.carrd.co/)<br/>
+### [Carrd](https://linaw.carrd.co/)<br/>
 <br/>
 <div align="center">  
   <img src="https://64.media.tumblr.com/1b0f91780862dde5fa2de5206483e059/90612bc0eacceae9-d5/s250x400/8489cdf501ccd7db9225014e49a29ccf1104aac6.pnj" width="70">
