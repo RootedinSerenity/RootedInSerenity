@@ -11,7 +11,7 @@
 
 <img src="https://64.media.tumblr.com/67208e071364315767871cd955c1d5c6/76f6621c96c1ea9f-8d/s2048x3072/c5847c1b4fbae852f47041fe1fe98757498a410d.pnj">
 
-<img src="https://github.com/DazzleStaries/gifs-spot/blob/main/tumblr_f56ed26b9a894aee69faac3946560d02_333c40b3_640.gif" width=900>
+<img src="https://github.com/RootedinSerenity/gifs-spot/blob/main/IMG_2636.gif" width=900>
 
 <p align="center">
   <img src="https://64.media.tumblr.com/e8f4793bd364fad2cbbb31fb2b6c45c3/8f27961491e74009-85/s1280x1920/b14da3f90776d4b1e24b1044a3d73b12614dbab5.pnj">
