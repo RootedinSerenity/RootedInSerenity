@@ -34,7 +34,7 @@
 
 <div align="center"> 
 
-### [Rentry](https://rentry.co/glassedrosesinmelancholy)<br/>
+### [Discord](https://discord.com/users/1116189457440325682)<br/>
 <br/>
 <p align="center">
   <img src="https://64.media.tumblr.com/018b7a242f58c6852edfef8ad29db823/c095cea3aadbcb4a-fc/s250x400/170aadaf15f326efc8c92f838fbe6feec5fa669f.pnj" width="70">
@@ -42,8 +42,8 @@
 
 <div align="center"> 
   
-### [Strawpage](https://glassedrosesinmelancholy.straw.page)<br/>
-### [Atabook](https://glassedrosesinmelancholy.atabook.org/)<br/>
+### [Strawpage](https://rootedinserenity.straw.page)<br/>
+### [Atabook](https://linaw.atabook.org/)<br/>
 (draw and sign ata, pls.)
 
 <p align="center">
